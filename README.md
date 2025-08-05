@@ -1,0 +1,1 @@
+Hi bruh, enemy trapped!
